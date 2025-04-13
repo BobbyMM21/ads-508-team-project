@@ -11,8 +11,8 @@
 #### Authors:
 
 -   [Robert "Bobby" Marriott](https://www.linkedin.com/in/bobby-marriott/)
--   [Gabriel "Gabe" Duffy](/www.linkedin.com/in/gabriel-duffy/?trk=people-guest_people_search-card)
--   [Katherine "Katie" Kimberling](/www.linkedin.com/in/katie-kimberling-b6617173/)
+-   [Gabriel "Gabe" Duffy](https://www.linkedin.com/in/gabriel-duffy/?trk=people-guest_people_search-card)
+-   [Katherine "Katie" Kimberling](https://www.linkedin.com/in/katie-kimberling-b6617173/)
 
 **Company Name:** Reputation Integrity Solutions.\
 **Company Industry**: Cybersecurity & Reputation Management.\
