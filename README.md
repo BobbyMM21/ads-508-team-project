@@ -10,7 +10,7 @@
 
 #### Authors:
 
--   [Robert "Bobby" Marriott](/www.linkedin.com/in/bobby-marriott/)
+-   [Robert "Bobby" Marriott](https://www.linkedin.com/in/bobby-marriott/)
 -   [Gabriel "Gabe" Duffy](/www.linkedin.com/in/gabriel-duffy/?trk=people-guest_people_search-card)
 -   [Katherine "Katie" Kimberling](/www.linkedin.com/in/katie-kimberling-b6617173/)
 
