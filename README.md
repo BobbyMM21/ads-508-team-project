@@ -1,4 +1,4 @@
-# Sticks and Stones May Break My Bones
+# Sticks and Stones (May Break My Bones)
 
 ## USD MADS 508: Cloud Computing
 
